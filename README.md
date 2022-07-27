@@ -7,4 +7,4 @@ Here are some ideas to get you started:
  
  Ask me about programming language
  
- mailbox How to reach me: jannatulkanok674@gmail.com
+ Mailbox How to reach me: jannatulkanok674@gmail.com
